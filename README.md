@@ -1,3 +1,1 @@
-i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like 
-i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like 
-i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like i like 
+i like trash
